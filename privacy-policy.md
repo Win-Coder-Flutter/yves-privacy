@@ -1,5 +1,5 @@
 Privacy Policy  
-----------------
+---------------
 
 ### Introduction  
 Our privacy policy will help you understand what information we collect at YvesRocherMM, how YvesRocherMMuses it, and what choices you have.
